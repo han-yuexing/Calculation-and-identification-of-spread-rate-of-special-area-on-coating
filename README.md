@@ -1,0 +1,1 @@
+# Calculation-and-identification-of-spread-rate-of-special-area-on-coating
